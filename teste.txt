@@ -1,1 +1,0 @@
-Edicao do arquivo
